@@ -1,1 +1,1 @@
-# gaZiGazi
+# gaziGazi
